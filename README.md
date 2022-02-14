@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @harshith-tech
+- 👀 I’m interested in ... Gaming and coding
+- 🌱 I’m currently learning ... VSC and c and c++
+- 💞️ I’m looking to collaborate on ... --not yet--
+- 📫 How to reach me ... +919491763857 or lollified#5485(Discord)
